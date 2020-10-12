@@ -12,9 +12,11 @@
 
 
 (wait for it)
-
+(wait for it)
+(wait for it)
+(I am the one thing in life I can controlllllllll)
 
  MOVE IT!
 
 
-    THIS IS NOT GOING TO GO WELLLLLLLLL!!!1
+HAMILTON FACES A CONSTANT UPHILL CLIMB
